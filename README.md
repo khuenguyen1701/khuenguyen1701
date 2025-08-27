@@ -1,5 +1,5 @@
 # 🍓 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆:
-I'm Leonie.<br>🇻🇳 I'm from Ho Chi Minh City, Viet Nam.<br>🍇 I love coding 👩🏻‍💻, painting 🎨, traveling ✈️, and crocheting 🧶.<br>🇩🇪 Currently reviewing German<br>My pronouns is she/ her/ hers.<br>You can reach me via email: khuenguyen170105@gmail.com<br>
+It's Leonie.<br>🇻🇳 I'm from Ho Chi Minh City, Viet Nam.<br>🍇 I love coding 👩🏻‍💻, painting 🎨, traveling ✈️, and crocheting 🧶.<br>🇩🇪 Currently reviewing German<br>My pronouns is she/ her/ hers.<br>You can reach me via email: khuenguyen170105@gmail.com<br>
 
 
 # 🍓 𝒎𝒚 𝒔𝒐𝒄𝒊𝒂𝒍𝒔:
